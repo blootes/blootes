@@ -1,2 +1,2 @@
-# blootes
-just my random stuffs
+# Blootes
+imma a dog with horn on my forehead.
